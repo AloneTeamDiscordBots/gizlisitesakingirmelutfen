@@ -1,0 +1,2 @@
+# gizlisitesakingirmelutfen
+SAKIN GİRME
